@@ -10,7 +10,7 @@ Interested in front end && graphics
 
 📧 Contact: gflynn1024@outlook.com  
 
-**https://georgiaflynn.com**
+**https://georgiaflynn.com/**
 
 <!---
 gflynn1024/gflynn1024 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
