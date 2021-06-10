@@ -6,7 +6,7 @@ Interested in front end && graphics
 
 🏫 正在 Univeristy of Wisconsin-Madison 念书  
 
-📕 大一，计算机科学专业 freshman && Computer Sciences
+📕 大二，计算机科学专业 sophomore && Computer Sciences
 
 📧 Contact: gflynn1024@outlook.com  
 
