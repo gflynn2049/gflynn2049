@@ -1,8 +1,10 @@
 你好 👋 我是 Georgia  
-Sup!! This is Georgia  
+Sup! This is Georgia  
 
 👀 对前端和图形很感兴趣  
 Interested in front end && graphics 
+
+I love sketching :) <a href="https://www.instagram.com/gflynn2049/">Here</a> are some that I did after 2021.
 
 🏫 正在 Univeristy of Wisconsin-Madison 念书  
 
