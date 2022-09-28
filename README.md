@@ -8,8 +8,6 @@ I love sketching :) <a href="https://www.instagram.com/gflynn2049/">Here</a> are
 
 🏫 正在 Univeristy of Wisconsin-Madison 念书  
 
-📕 准大三，计算机科学专业 rising junior && Computer Sciences
-
 📧 Contact: gflynn1024@outlook.com  
 
 **https://georgiaflynn.com/**
