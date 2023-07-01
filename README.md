@@ -4,9 +4,9 @@ Sup! This is Georgia
 👀 对电影摄制和哲学很感兴趣  
 Interested in cinematography && philosophy 
 
-I love sketching :) <a href="https://www.instagram.com/gflynn2049/">Here</a> are some that I did after 2021.
+<a href="https://www.instagram.com/gflynn2049/">我的 Instagram</a>
 
-🏫 正在 Univeristy of Wisconsin-Madison 念书  
+🏫 UW-Madison Comp Sci '23 
 
 📧 Contact: gflynn1024@outlook.com  
 
