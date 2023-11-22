@@ -8,7 +8,7 @@ interested in cinematography && computational photography
 
 🏫 uw-madison comp sci '23 
 
-📧 contact: gflynn2049@gmail.com  
+📧 gflynn2049@gmail.com  
 
 🌍 [gflynn2049.vercel.app](https://gflynn2049.vercel.app/)
 
